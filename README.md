@@ -21,3 +21,5 @@ Recommended books:
   A Course In Miracles
 
 Quantum archaeology may be studied by some Tenqidoka. 
+
+The ideas of Nikolai Fyodorovich Fyodorov are worth studying. 
