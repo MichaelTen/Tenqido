@@ -19,3 +19,5 @@ Recommended books:
   The Art of Peace by Morihei Ueshiba
   Ending Aging by Aubrey de Grey 
   A Course In Miracles
+
+Quantum archaeology may be studied by some Tenqidoka. 
